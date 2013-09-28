@@ -21,3 +21,5 @@ Finally, all damage done to your eyesight is your own responsibility.
 Liscence
 ============
 Licensed under Creative Commons 3.0 Attribution & Non-commercial (https://creativecommons.org/licenses/by-nc/3.0/)
+
+[![githalytics.com alpha](https://cruel-carlota.pagodabox.com/4ceff263c985b1a7abde65b8b679d83e "githalytics.com")](http://githalytics.com/Seanny123/ShortStories)
