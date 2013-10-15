@@ -1,37 +1,54 @@
-Tempo
+#Tempo#
 
-I'm walking from recording when I feel my phone ring. I look at the screen and my heart crashes against my rib cage in that absurd way that I haven't felt since high school. Why is she calling? I gulp down some air and answer.
+I'm walking from recording when I feel my phone ring. I look at the screen and 
+my heart crashes against my rib cage in that absurd way that I haven't felt 
+since high school. Why is she calling? I gulp down some air and answer.
 
 "Uh, hello?"
 "Hey. Carl?" Yep, that's definitely her voice.
 "Hey. Sharon." At least my voice didn't crack like back in high school.
 "Oh great, you still use this number. How are you doing?"
-"Oh you know, the usual. Writing another album." 
-It wasn't going well. Talking to her highlighted that fact for me.
+"Oh you know, the usual. Writing another album." It wasn't going well. Talking 
+to her highlighted that fact for me.
 "That's great to hear. Listen, you remember Ralph Donnely right?"
-"Vaguely." I'm not good with names. Yet another reason this whole show business thing probably isn't for me.
-"He helped record that album we did together. Started producing some big names after that."
-Oh right, that jerk. Thanks for pointing out another person that's doing better than me.
+"Vaguely." I'm not good with names. Yet another reason this whole show business 
+thing probably isn't for me.
+"He helped record that album we did together. Started producing some big names 
+after that."
+Oh right, that jerk. Thanks for pointing out another person that's doing better 
+than me.
 "He died," she says.
 Oh for fuck's sake.
 "That's terrible. What happened?" I mutter generically.
-"Heart attack. It's a real loss. He had some interesting last wishes though. He wanted us to perform our song 'Untangled' at his funeral."
-"That's quite nice of him, but I'm kind of in the middle of recording with Dev right now..."
+"Heart attack. It's a real loss. He had some interesting last wishes though. He 
+wanted us to perform our song 'Untangled' at his funeral."
+"That's quite nice of him, but I'm kind of in the middle of recording with Dev 
+right now..."
 "His family is willing to pay us $500 for the performance."
-"Ah." I can't really think of a way to say yes without seeming like a total asshole, but thankfully, she gives me one.
+"Ah." I can't really think of a way to say yes without seeming like a total 
+asshole, but thankfully, she gives me one.
 "It would mean a lot to me. Ralph was a close friend."
-"Oh. Well, if it means a lot to you, I'll do it. When do you want to start rehearsing?"
+"Oh. Well, if it means a lot to you, I'll do it. When do you want to start 
+rehearsing?"
 
-I meet Sharon at the rehearsal space she rented. She looks good in the way that seems to be reserved for ex-girlfriends. Slim, sexy and permeating an aura of success. I'm wearing the same style I've worn since high school, a plaid shirt and jeans that would have looked good if grunge was still cool.
+I meet Sharon at the rehearsal space she rented. She looks good in the way that 
+seems to be reserved for ex-girlfriends. Slim, sexy and permeating an aura of 
+success. I'm wearing the same style I've worn since high school, a plaid shirt 
+and jeans that would have looked good if grunge was still cool.
 
 "You still remember the chords?" she asks.
 "Yeah. You still remember the melody?"
 "I'm a little rusty, but I'm sure we can stumble through it."
 "Alright, one two three..."
 
-We start playing and it's like no time has passed at all. The notes trickle through my nerves and into my fingers without much intervention. Admittedly, it hasn't been that long since I last practiced the song. Every month or so, I accidentally play it when I sit at a keyboard trying to figure out something new. 
+We start playing and it's like no time has passed at all. The notes trickle 
+through my nerves and into my fingers without much intervention. Admittedly, it 
+hasn't been that long since I last practiced the song. Every month or so, I 
+accidentally play it when I sit at a keyboard trying to figure out something 
+new. 
 
-The words still ring as true now as they did back then, even if they make most of my fellow musicians cringe.
+The words still ring as true now as they did back then, even if they make most 
+of my fellow musicians cringe.
 
 "
 Shake off your cement shoes
@@ -40,30 +57,61 @@ Cold air and courage
 Is all you need
 "
 
-And the harmonies... I've always been a sucker for harmonies. By the time we finish, I'm giddy from revisited nostalgia.
+And the harmonies... I've always been a sucker for harmonies. By the time we 
+finish, I'm giddy from revisited nostalgia.
 
-Apparently, the feeling isn't mutual. "Alright, I think you came in a little early on the chorus,"  she says,  "I feel like that the silence is as important as the notes."
+Apparently, the feeling isn't mutual. "Alright, I think you came in a little 
+early on the chorus,"  she says,  "I feel like that the silence is as important 
+as the notes."
 
 We go for coffee afterwards, as a professional courtesy I suppose.
 
-"So you kept working with Ralph after our album?" I ask. The time-line of her life is a little foggy after we broke up. We haven't really spoken since our last performance together, as a result of built up resentment after a series of yelling matches. Among a thousand other little things, she was pissed that I couldn't be more natural for our media appearances. That aggravated me, so I would defensively accused her of being a dick when she talked to our fans after the show. Since then, all that I knew I had scavenged together when I saw her mentioned on some music websites.
+"So you kept working with Ralph after our album?" I ask. The time-line of her 
+life is a little foggy after we broke up. We haven't really spoken since our 
+last performance together, as a result of built up resentment after a series of 
+yelling matches. Among a thousand other little things, she was pissed that I 
+couldn't be more natural for our media appearances. That aggravated me, so I 
+would defensively accused her of being a dick when she talked to our fans after 
+the show. Since then, all that I knew I had scavenged together when I saw her 
+mentioned on some music websites.
 
-"He's the one that kept calling me up actually. Kept on saying that he needed my voice on one of the tracks he was working on. Naturally, when I started solo, he's the first guy I went to. He knew how to bring the best part of my songs to the forefront."
+"He's the one that kept calling me up actually. Kept on saying that he needed my 
+voice on one of the tracks he was working on. Naturally, when I started solo, 
+he's the first guy I went to. He knew how to bring the best part of my songs to 
+the forefront."
 
-I happen to disagree. I feel he hid a lot of the best parts of our album, but with the two of them teaming up on me, I didn't really have a chance. No point bringing it up again now and souring the situation with another argument. We'd had so many that I had learned to spot them looming on the horizon, so I change the subject.
+I happen to disagree. I feel he hid a lot of the best parts of our album, but 
+with the two of them teaming up on me, I didn't really have a chance. No point 
+bringing it up again now and souring the situation with another argument. We'd 
+had so many that I had learned to spot them looming on the horizon, so I change 
+the subject.
 
 "Who are you staying with while you're in Ottawa?"
-"Oh. My, uh, boyfriend Ramesh has a conference here. Some computer thing. So I'm crashing in his hotel room."
+"Oh. My, uh, boyfriend Ramesh has a conference here. Some computer thing. So I'm 
+crashing in his hotel room."
 My heart sinks further than I expected it to.
 "Cool."
 
-As I walk back, I find myself stuck on some half-remembered emotion. Only as I cross the street, the wind sticking its greedy hands up my jacket to steal away the warmth, do I realize its origin. It was back when I would walk back home after our dates. A song would pop into my head and I would practically race home to write it down. I haven't had that feeling or written anything for a while now. I'm in a punk band, but the lead singer, Dev, does most of the writing. He keeps me around because I am reliable, which really isn't something you can boast about at parties. 
+As I walk back, I find myself stuck on some half-remembered emotion. Only as I 
+cross the street, the wind sticking its greedy hands up my jacket to steal away 
+the warmth, do I realize its origin. It was back when I would walk back home 
+after our dates. A song would pop into my head and I would practically race home 
+to write it down. I haven't had that feeling or written anything for a while 
+now. I'm in a punk band, but the lead singer, Dev, does most of the writing. He 
+keeps me around because I am reliable, which really isn't something you can 
+boast about at parties. 
 
 I imagined the party seduction scenario would play out like this.
 "So why do you play that type of music?" the woman would slyly ask.
-"Oh, I don't really care. I just stay in the band because Dev wants me," I would reply suavely before cocking up an eyebrow and leaning in to drive home the point, "I'm reliable!"
+"Oh, I don't really care. I just stay in the band because Dev wants me," I would 
+reply suavely before cocking up an eyebrow and leaning in to drive home the 
+point, "I'm reliable!"
 
-The day of the funeral, Dev is kind enough to drive me to the church. "You gotta look classy, man. Show the family you mean business and that your business is grief." He is dressed up for the occasion, his dreadlocks contrasting nicely with the suit and chauffeur hat. I comment that a rusting van was hardly chauffeur material, but he insists anyways. 
+The day of the funeral, Dev is kind enough to drive me to the church. "You gotta 
+look classy, man. Show the family you mean business and that your business is 
+grief." He is dressed up for the occasion, his dreadlocks contrasting nicely 
+with the suit and chauffeur hat. I comment that a rusting van was hardly 
+chauffeur material, but he insists anyways. 
 
 He is the only one with the balls to point out the elephant in the room.
 
@@ -73,18 +121,38 @@ He's nice enough to pose the question ambiguously to give me some wiggle room.
 
 Except I wish it wasn't. 
 
-I wish I could be some sort of hybrid necromancer-archaeologist who unearthed the past, understood it and then brought it back to life. She made me happy and, godammit, I haven't felt that in a long time, even if it was the bad kind of happy that they warn you about in books.
+I wish I could be some sort of hybrid necromancer-archaeologist who unearthed 
+the past, understood it and then brought it back to life. She made me happy and, 
+godammit, I haven't felt that in a long time, even if it was the bad kind of 
+happy that they warn you about in books.
 
-"You know," she say "when you guys first broke up, I was like: 'Sweet, break-up album time. One order of catharsis comin' right up.', but that never happened. So I guess I was just wondering if you've actually moved on, or if you just shoved it down there?"
-"Oh no. The break-up album happened. It was just so bad I never showed it to you." I joke.
+"You know," she say "when you guys first broke up, I was like: 'Sweet, break-up 
+album time. One order of catharsis comin' right up.', but that never happened. 
+So I guess I was just wondering if you've actually moved on, or if you just 
+shoved it down there?"
+"Oh no. The break-up album happened. It was just so bad I never showed it to 
+you." I joke.
 
-The church is one those mega-churches with a multi-level parking garage, which is filled with shiny cars I'd only seen before in video games.
+The church is one those mega-churches with a multi-level parking garage, which 
+is filled with shiny cars I'd only seen before in video games.
 
-"Personally," says Dev, "I don't get the whole piano/vocal duo thing. No offence to you guys, but this guy has done everything from Jazz to Dubstep. What was it about you two that he loved so much? When I die, I want the most mournful, soulful ska band you can find. Ya got it? I want those trumpets to dig into your soul, like they're being played by fucking angels."
-"I think it would be hard for the angels to fuck and play trumpets at the same time."
+"Personally," says Dev, "I don't get the whole piano/vocal duo thing. No offence 
+to you guys, but this guy has done everything from Jazz to Dubstep. What was it 
+about you two that he loved so much? When I die, I want the most mournful, 
+soulful ska band you can find. Ya got it? I want those trumpets to dig into your 
+soul, like they're being played by fucking angels."
+"I think it would be hard for the angels to fuck and play trumpets at the same 
+time."
 Dev rolls his eyes and punches my arm.
 
-We're the finale, so we have to wait for an eternity in the wings. When it's finally our turn, I walk deliberately on stage (or do you call it something different if it's in a church?), uncertain of what persona to assume in front of mourners. I look over at Sharon, who's confident as usual. She nods for me to start. I breathe out once to stabilize and hit those notes with all I havae. Our voices harmonize and the emotions flow, amplified by the acoustics of the church. It's like we are tearing the world down, leaving only the music to remain.
+We're the finale, so we have to wait for an eternity in the wings. When it's 
+finally our turn, I walk deliberately on stage (or do you call it something 
+different if it's in a church?), uncertain of what persona to assume in front of 
+mourners. I look over at Sharon, who's confident as usual. She nods for me to 
+start. I breathe out once to stabilize and hit those notes with all I have. Our 
+voices harmonize and the emotions flow, amplified by the acoustics of the 
+church. It's like we are tearing the world down, leaving only the music to 
+remain.
 
 "
 Let it go
@@ -93,62 +161,103 @@ To your chest
 Will only break you
 "
 
-As the last note rings out, I'm not sure anymore what is reality and what is fantasy. There are tears in everyone's eyes, although those were probably there from before, I guess. The applause calls out to me, but that could just be my ego too. Sharon says a polite thank you before we quietly walk off stage.
+As the last note rings out, I'm not sure anymore what is reality and what is 
+fantasy. There are tears in everyone's eyes, although those were probably there 
+from before, I guess. The applause calls out to me, but that could just be my 
+ego too. Sharon says a polite thank you before we quietly walk off stage.
 
 Her smile glows as we exit through the back door.
 
 "Little bit different of a crowd than you're used to, eh?" she says playfully.
-"Yeah, but a good different. Don't get me wrong though, I still want a mosh pit at my funeral."
+"Yeah, but a good different. Don't get me wrong though, I still want a mosh pit 
+at my funeral."
 "And your coffin crowd-surfed to the burial site?"
 Her laughter lights up the sky.
 "And fireworks as they lower the casket."
 The moment is so prefect that I want to capture it in terrible gushing prose.
 
-<i>
-Her, 
+_Her,
 Luminescent,
-A gray overcast sky 
-And a smile just for me
-</i>
+A gray overcast sky
+And a smile just for me_
 
-An awkward silence falls as I try to grasp for any excuse to prolong our time together.
-"Do you need a ride home?" is all I can muster, despite the fact it technically isn't my car.
-"No, but thanks for offering. Ramesh is going to pick me up. He'll be here any minute now."
-"Oh. Yeah. Cool." I stand there for a beat, before realizing this is the part where I walk away.
+An awkward silence falls as I try to grasp for any excuse to prolong our time 
+together.
+"Do you need a ride home?" is all I can muster, despite the fact it technically 
+isn't my car.
+"No, but thanks for offering. Ramesh is going to pick me up. He'll be here any 
+minute now."
+"Oh. Yeah. Cool." I stand there for a beat, before realizing this is the part 
+where I walk away.
 
-The night after the performance, I dream that Sharon, Dev and I are riding in Dev's van, going to some place fun. The warm wind is flowing through the windows and Sharon is cuddled to my side. She looks up at me, smiles and kisses me. I hold her lips for longer than I care to admit, before self-disgust kicks in. I push her back, start saying something about how she can't keep doing this to me. That's when I wake up.
+The night after the performance, I dream that Sharon, Dev and I are riding in 
+Dev's van, going to some place fun. The warm wind is flowing through the windows 
+and Sharon is cuddled to my side. She looks up at me, smiles and kisses me. I 
+hold her lips for longer than I care to admit, before self-disgust kicks in. I 
+push her back, start saying something about how she can't keep doing this to me. 
+That's when I wake up.
 
-The dream still drifts in my head, the contrast between its reality and its emotional effect nagging me, as I go for coffee with Sharon before she heads back to San Francisco.
+The dream still drifts in my head, the contrast between its reality and its 
+emotional effect nagging me, as I go for coffee with Sharon before she heads 
+back to San Francisco.
 
-We talk one last time about everything and nothing, in the way that I missed since we drifted apart.
+We talk one last time about everything and nothing, in the way that I missed 
+since we drifted apart.
 
 "Ramesh sounds like a pretty amazing guy." I say genuinely.
-"Yeah, I guess. The reason we work well together is the independence. We each have our own thing."
+"Yeah, I guess. The reason we work well together is the independence. We each 
+have our own thing."
 "But does he make you happy?"
-"Sure. I'm happy with him but, you know, I don't believe that romantic relationships are a way to long-term happiness."
+"Sure. I'm happy with him but, you know, I don't believe that romantic 
+relationships are a way to long-term happiness."
 
-It's only as she speaks those words that I understood that I had thought, for some time, that relationships were the key to some locked-away chest of happiness. What is unsettling is that I can't figure out if I'm offended by her attacking me or if I'm angry at myself for feeling attacked. If it wasn't someone else that brought happiness, what was I supposed to do? Loneliness certainly didn't seem to be a viable option. Or maybe it is just my personal brand of brooding loneliness, which seems to follow me around like some pathetic cartoon rain cloud.
+It's only as she speaks those words that I understood that I had thought, for 
+some time, that relationships were the key to some locked-away chest of 
+happiness. What is unsettling is that I can't figure out if I'm offended by her 
+attacking me or if I'm angry at myself for feeling attacked. If it wasn't 
+someone else that brought happiness, what was I supposed to do? Loneliness 
+certainly didn't seem to be a viable option. Or maybe it is just my personal 
+brand of brooding loneliness, which seems to follow me around like some pathetic 
+cartoon rain cloud.
 
-In the story of my life that I keep on building in my head, I had always drawn my idealized self with a woman. Someone to share experiences with. Someone to recount the tales and adventures back to me and say: "Yes, this was worth it."
+In the story of my life that I keep on building in my head, I had always drawn 
+my idealized self with a woman. Someone to share experiences with. Someone to 
+recount the tales and adventures back to me and say: "Yes, this was worth it."
 
-God, what a terrible fantasy. I don't want a lover, I want someone to confirm I wasn't wasting my life and to reflect what Hollywood and every brainless pop song on the radio claims to be happiness. Why can't I imagine adventures on my own? Where did this neediness come from?
+God, what a terrible fantasy. I don't want a lover, I want someone to confirm I 
+wasn't wasting my life and to reflect what Hollywood and every brainless pop 
+song on the radio claims to be happiness. Why can't I imagine adventures on my 
+own? Where did this neediness come from?
 
-I try to disguise my childish inner turmoil, talking about the weather in San Francisco as we pay our bills. Outside of the cafe, Dev's question leaks from my head to my mouth.
+I try to disguise my childish inner turmoil, talking about the weather in San 
+Francisco as we pay our bills. Outside of the café, Dev's question leaks from my 
+head to my mouth.
 
 "Why did our song mean so much to Ralph anyways?"
-"What Ralph loved the most about producing music was bringing all the artists together. We helped him find and define that passion. When he first saw us together in the studio, he understood that this is what he wanted to do, bring the right people together in the right way."
+"What Ralph loved the most about producing music was bringing all the artists 
+together. We helped him find and define that passion. When he first saw us 
+together in the studio, he understood that this is what he wanted to do, bring 
+the right people together in the right way."
 Yeah, at one point, we were the right people and it was the right way.
 "Do you miss the music we used to play together?"
 It's like the filter between my brain and my mouth is broken today.
-"Come on Carl, what kind of question is that? Are you asking if the music meant anything to me? Of course it did. It was my first album, you don't forget the thrill of putting yourself out there like that. Are you asking if I miss you? No and it's not because of you. I'm not the type of person that misses things. I'm the person that finds new things to replace the aches I have."
+"Come on Carl, what kind of question is that? Are you asking if the music meant 
+anything to me? Of course it did. It was my first album, you don't forget the 
+thrill of putting yourself out there like that. Are you asking if I miss you? No 
+and it's not because of you. I'm not the type of person that misses things. I'm 
+the person that finds new things to replace the aches I have."
 I saw that answer coming from a mile away, but I needed to hear her say it.
-"Cool. See you around, I guess." I say, the weird hollow thing in my stomach sapping my strength.
+"Cool. See you around, I guess." I say, the weird hollow thing in my stomach 
+sapping my strength.
 "Sure. Carl? Take care of yourself, eh?"
-"Yeah. I'll start exercising and volunteering at the orphanage. Simultaneously." I can't help but leave her with a joke.
+"Yeah. I'll start exercising and volunteering at the orphanage. Simultaneously." 
+I can't help but leave her with a joke.
 
-On my walk home, for the first time in a long time, the chords and voices pop into my head.
+On my walk home, for the first time in a long time, the chords and voices pop 
+into my head.
 
 "These bridges I burned,
 These scars (this spite) that I earned."
 
-I start jogging, afraid that a passing car might scare the music away. Right. So that was shit, but at least it was workable shit. Dev will be pleased.
+I start jogging, afraid that a passing car might scare the music away. Right. So 
+that was shit, but at least it was workable shit. Dev will be pleased.
