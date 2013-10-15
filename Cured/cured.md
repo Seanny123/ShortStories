@@ -1,9 +1,9 @@
-Cured
+#Cured#
 
 Abby's hair blows in the wind as we walk in the park beside her apartment. It will be someone else running their fingers through her hair now, I guess.
- 
-“It’s like you’re only half-there when we're together,” Abby says. "Honestly, what do you want Tony? What do you care about?" This hurts more than it should given how many times this has happened before.
-"Well, I was hoping to see a movie with you," I say, "but that doesn't seem to be an option anymore." 
+
+"It's like you're only half-there when we're together," Abby says. "Honestly, what do you want Tony? What do you care about?" This hurts more than it should given how many times this has happened before.
+"Well, I was hoping to see a movie with you," I say, "but that doesn't seem to be an option anymore."
 She sighs, so I guess that means I win. At least that's what I keep telling myself as I walk home and collapse into a puddle of self-pity on my couch with a bag full of candy.
 
 "Those are those 'Comfort Candies' aren't they?" my room-mate Jad says, throwing himself on the couch beside me. "In the year we've lived together, I've never seen you smiling while eating those jujubes."
@@ -24,7 +24,7 @@ I grab another handful of jujubes in preparation. "Hit me."
 "When I introduced you to my friend Dev, you said he smelled pretty good for a hippy."
 "It was a joke. Also, I've never met a person with dreadlocks who wasn't a hippy."
 "Second point. What is it you are actually working towards? I've only heard you mention things you hate, never anything you've loved."
-“Why do I need to 'work towards something'? And even if you're right about these 'problems', what can I do about them anyways?”
+"Why do I need to 'work towards something'? And even if you're right about these 'problems', what can I do about them anyways?"
 "Depends. Ideally, what would you want achieve?"
 "Closure?"
 "Do you think she's right?"
@@ -33,9 +33,9 @@ I grab another handful of jujubes in preparation. "Hit me."
 "Our friend?"
 "What if you tried being a more caring person? You know, fake it until you make it and analyse the results."
 "How do I even fake that?"
-"You can try cognitive behaviour therapy.”
-“That sounds like something out of a self-help book.”
-“Or there might be something we can print.”
+"You can try cognitive behaviour therapy."
+"That sounds like something out of a self-help book."
+"Or there might be something we can print."
 
 I like that idea a lot better.
 
@@ -45,7 +45,7 @@ Jad taps on his phone a few times and I hear the bio-printer start in his bedroo
 
 "Some researchers in Austria found this compound that enhances the amount of empathy you feel," Jad says, "which is basically what you're lacking."
 "What's the catch? Spontaneous tentacle production?" I say.
-With another tap, he sends me the research papers. 
+With another tap, he sends me the research papers.
 "Check it out for yourself", he says.
 They seem legitimate as far as my high school knowledge of biology is concerned.
 "Okay," I say, "but I'm stopping as soon as things get too weird."
@@ -96,7 +96,7 @@ Jad is taken aback, "What? We just got started."
 "We'll lower the dose some more."
 "When people ask me for charity donations, my wallet becomes a liability."
 "I'm sure a lower dose will fix those problems."
-"No, fuck it Jad, I need my apathy to function. I used to be happy. Now, I'm having existential crises at night, which is something I thought only emo kids did." 
+"No, fuck it Jad, I need my apathy to function. I used to be happy. Now, I'm having existential crises at night, which is something I thought only emo kids did."
 "So your priorities are re-aligning. Isn't this what you wanted?"
 My voice approaches hysteria. "Maybe, but I still wanted to know who the hell I was. I DON'T EVEN LIKE THESE FUCKING JUJUBES ANYMORE!" I shake the bag in front of me accenting my confusion.
 Jad pleads, "Come on don't give up now!"
@@ -116,7 +116,7 @@ Just as I thought, zero relevant results. Jad sighs behind me.
 That stops me in my tracks.
 
 "Why are you taking these things?" I ask as my fist unclenches.
-"I needed to test the fix before I spread it to a wider audience." 
+"I needed to test the fix before I spread it to a wider audience."
 "What? Are you planning to sneak it into the water supply like some super-villain?"
 "Actually, I was thinking the campus coffee machine might be the more practical vector of propagation."
 "I'm not even going to try and counter that. Jad, the pills have made you completely insane and I am getting the hell out of here."
@@ -134,7 +134,7 @@ He's unfazed by my instability. "Because you're intimidated by responsibility?"
 "Listen, I didn't mean to anger..."
 "I'm not angry, you just seem to have some answers I need."
 "Okay..."
-"My apathy stops me from helping people, so ideally, I should fix my apathy." 
+"My apathy stops me from helping people, so ideally, I should fix my apathy."
 "How?"
 "What if, hypothetically, you could take a pill that made you more emotionally sensitive to other people's suffering. Would you take it?"
 "Of course. Assuming that it has no ulterior cost."
