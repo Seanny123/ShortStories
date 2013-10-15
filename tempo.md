@@ -5,29 +5,46 @@ my heart crashes against my rib cage in that absurd way that I haven't felt
 since high school. Why is she calling? I gulp down some air and answer.
 
 "Uh, hello?"
+
 "Hey. Carl?" Yep, that's definitely her voice.
+
 "Hey. Sharon." At least my voice didn't crack like back in high school.
+
 "Oh great, you still use this number. How are you doing?"
+
 "Oh you know, the usual. Writing another album." It wasn't going well. Talking 
 to her highlighted that fact for me.
+
 "That's great to hear. Listen, you remember Ralph Donnely right?"
+
 "Vaguely." I'm not good with names. Yet another reason this whole show business 
 thing probably isn't for me.
+
 "He helped record that album we did together. Started producing some big names 
 after that."
+
 Oh right, that jerk. Thanks for pointing out another person that's doing better 
 than me.
+
 "He died," she says.
+
 Oh for fuck's sake.
+
 "That's terrible. What happened?" I mutter generically.
+
 "Heart attack. It's a real loss. He had some interesting last wishes though. He 
 wanted us to perform our song 'Untangled' at his funeral."
+
 "That's quite nice of him, but I'm kind of in the middle of recording with Dev 
 right now..."
+
 "His family is willing to pay us $500 for the performance."
+
 "Ah." I can't really think of a way to say yes without seeming like a total 
 asshole, but thankfully, she gives me one.
+
 "It would mean a lot to me. Ralph was a close friend."
+
 "Oh. Well, if it means a lot to you, I'll do it. When do you want to start 
 rehearsing?"
 
@@ -37,8 +54,11 @@ success. I'm wearing the same style I've worn since high school, a plaid shirt
 and jeans that would have looked good if grunge was still cool.
 
 "You still remember the chords?" she asks.
+
 "Yeah. You still remember the melody?"
+
 "I'm a little rusty, but I'm sure we can stumble through it."
+
 "Alright, one two three..."
 
 We start playing and it's like no time has passed at all. The notes trickle 
@@ -50,12 +70,12 @@ new.
 The words still ring as true now as they did back then, even if they make most 
 of my fellow musicians cringe.
 
-"
-Shake off your cement shoes
-And fill your lungs
-Cold air and courage
-Is all you need
-"
+> "
+> Shake off your cement shoes
+> And fill your lungs
+> Cold air and courage
+> Is all you need
+> "
 
 And the harmonies... I've always been a sucker for harmonies. By the time we 
 finish, I'm giddy from revisited nostalgia.
@@ -87,9 +107,12 @@ had so many that I had learned to spot them looming on the horizon, so I change
 the subject.
 
 "Who are you staying with while you're in Ottawa?"
+
 "Oh. My, uh, boyfriend Ramesh has a conference here. Some computer thing. So I'm 
 crashing in his hotel room."
+
 My heart sinks further than I expected it to.
+
 "Cool."
 
 As I walk back, I find myself stuck on some half-remembered emotion. Only as I 
@@ -130,6 +153,7 @@ happy that they warn you about in books.
 album time. One order of catharsis comin' right up.', but that never happened. 
 So I guess I was just wondering if you've actually moved on, or if you just 
 shoved it down there?"
+
 "Oh no. The break-up album happened. It was just so bad I never showed it to 
 you." I joke.
 
@@ -141,8 +165,10 @@ to you guys, but this guy has done everything from Jazz to Dubstep. What was it
 about you two that he loved so much? When I die, I want the most mournful, 
 soulful ska band you can find. Ya got it? I want those trumpets to dig into your 
 soul, like they're being played by fucking angels."
+
 "I think it would be hard for the angels to fuck and play trumpets at the same 
 time."
+
 Dev rolls his eyes and punches my arm.
 
 We're the finale, so we have to wait for an eternity in the wings. When it's 
@@ -154,12 +180,12 @@ voices harmonize and the emotions flow, amplified by the acoustics of the
 church. It's like we are tearing the world down, leaving only the music to 
 remain.
 
-"
-Let it go
-Fears bound tight
-To your chest
-Will only break you
-"
+> "
+> Let it go
+> Fears bound tight
+> To your chest
+> Will only break you
+> "
 
 As the last note rings out, I'm not sure anymore what is reality and what is 
 fantasy. There are tears in everyone's eyes, although those were probably there 
@@ -176,17 +202,20 @@ Her laughter lights up the sky.
 "And fireworks as they lower the casket."
 The moment is so prefect that I want to capture it in terrible gushing prose.
 
-_Her,
-Luminescent,
-A gray overcast sky
-And a smile just for me_
+> _Her,
+> Luminescent,
+> A gray overcast sky
+> And a smile just for me_
 
 An awkward silence falls as I try to grasp for any excuse to prolong our time 
 together.
+
 "Do you need a ride home?" is all I can muster, despite the fact it technically 
 isn't my car.
+
 "No, but thanks for offering. Ramesh is going to pick me up. He'll be here any 
 minute now."
+
 "Oh. Yeah. Cool." I stand there for a beat, before realizing this is the part 
 where I walk away.
 
@@ -205,9 +234,12 @@ We talk one last time about everything and nothing, in the way that I missed
 since we drifted apart.
 
 "Ramesh sounds like a pretty amazing guy." I say genuinely.
+
 "Yeah, I guess. The reason we work well together is the independence. We each 
 have our own thing."
+
 "But does he make you happy?"
+
 "Sure. I'm happy with him but, you know, I don't believe that romantic 
 relationships are a way to long-term happiness."
 
@@ -234,30 +266,38 @@ Francisco as we pay our bills. Outside of the café, Dev's question leaks from m
 head to my mouth.
 
 "Why did our song mean so much to Ralph anyways?"
+
 "What Ralph loved the most about producing music was bringing all the artists 
 together. We helped him find and define that passion. When he first saw us 
 together in the studio, he understood that this is what he wanted to do, bring 
 the right people together in the right way."
+
 Yeah, at one point, we were the right people and it was the right way.
 "Do you miss the music we used to play together?"
+
 It's like the filter between my brain and my mouth is broken today.
+
 "Come on Carl, what kind of question is that? Are you asking if the music meant 
 anything to me? Of course it did. It was my first album, you don't forget the 
 thrill of putting yourself out there like that. Are you asking if I miss you? No 
 and it's not because of you. I'm not the type of person that misses things. I'm 
 the person that finds new things to replace the aches I have."
+
 I saw that answer coming from a mile away, but I needed to hear her say it.
+
 "Cool. See you around, I guess." I say, the weird hollow thing in my stomach 
 sapping my strength.
+
 "Sure. Carl? Take care of yourself, eh?"
+
 "Yeah. I'll start exercising and volunteering at the orphanage. Simultaneously." 
 I can't help but leave her with a joke.
 
 On my walk home, for the first time in a long time, the chords and voices pop 
 into my head.
 
-"These bridges I burned,
-These scars (this spite) that I earned."
+> "These bridges I burned,
+> These scars (this spite) that I earned."
 
 I start jogging, afraid that a passing car might scare the music away. Right. So 
 that was shit, but at least it was workable shit. Dev will be pleased.

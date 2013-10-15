@@ -1,4 +1,4 @@
-Revelation Blues
+#Revelation Blues#
 
 All 222 students of Sacred Heart were in attendance on the 22nd of September. 
 People say that coincidences like these speak volumes of the importance that the 
@@ -369,7 +369,7 @@ One of my new friends catches up to me: "Dude, I totally thought you were going
 to come out of the closet there." I laugh with him and it is the greatest 
 feeling in the world. 
 
-Explanation:
+##Explanation:##
 So I've been wanting to write this story for years now. About a mass revelation 
 and the one guy who misses out. At first the story was going all angsty and 
 confrontational and atheist.  I wanted dramatic confessions and great burdens... 
@@ -383,5 +383,5 @@ weird. The only thing I'm proud of is I kept it small and still fit a bunch of
 symbolism in it. This bitch was swelling to 10 pages at one point before I put 
 him on a diet. God I'm tired...
 
-Problems:
+##Problems:##
 I think this story is boring because there's no tension, no dread. Am I right?
