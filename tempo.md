@@ -70,12 +70,13 @@ new.
 The words still ring as true now as they did back then, even if they make most 
 of my fellow musicians cringe.
 
-> "
 > Shake off your cement shoes
+
 > And fill your lungs
+
 > Cold air and courage
+
 > Is all you need
-> "
 
 And the harmonies... I've always been a sucker for harmonies. By the time we 
 finish, I'm giddy from revisited nostalgia.
@@ -180,12 +181,13 @@ voices harmonize and the emotions flow, amplified by the acoustics of the
 church. It's like we are tearing the world down, leaving only the music to 
 remain.
 
-> "
 > Let it go
+
 > Fears bound tight
+
 > To your chest
+
 > Will only break you
-> "
 
 As the last note rings out, I'm not sure anymore what is reality and what is 
 fantasy. There are tears in everyone's eyes, although those were probably there 
@@ -202,10 +204,13 @@ Her laughter lights up the sky.
 "And fireworks as they lower the casket."
 The moment is so prefect that I want to capture it in terrible gushing prose.
 
-> _Her,
+> Her,
+
 > Luminescent,
+
 > A gray overcast sky
-> And a smile just for me_
+
+> And a smile just for me
 
 An awkward silence falls as I try to grasp for any excuse to prolong our time 
 together.
@@ -296,8 +301,9 @@ I can't help but leave her with a joke.
 On my walk home, for the first time in a long time, the chords and voices pop 
 into my head.
 
-> "These bridges I burned,
-> These scars (this spite) that I earned."
+> These bridges I burned,
+
+> These scars (this spite) that I earned.
 
 I start jogging, afraid that a passing car might scare the music away. Right. So 
 that was shit, but at least it was workable shit. Dev will be pleased.
