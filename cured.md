@@ -1,10 +1,10 @@
 Cured
 
-Abby's hair blows in the wind as we walk in the park beside her apartment. It will be someone else running their fingers through her hair now, I guess.
+Abby's hair blows in the wind as we walk in the park beside her apartment. It will be someone else running their fingers through her hair now, I guess.  
  
-“It’s like you’re only half-there when we're together,” Abby says. "Honestly, what do you want Tony? What do you care about?" This hurts more than it should given how many times this has happened before.
-"Well, I was hoping to see a movie with you," I say, "but that doesn't seem to be an option anymore." 
-She sighs, so I guess that means I win. At least that's what I keep telling myself as I walk home and collapse into a puddle of self-pity on my couch with a bag full of candy.
+“It’s like you’re only half-there when we're together,” Abby says. "Honestly, what do you want Tony? What do you care about?" This hurts more than it should given how many times this has happened before.  
+"Well, I was hoping to see a movie with you," I say, "but that doesn't seem to be an option anymore."  
+She sighs, so I guess that means I win. At least that's what I keep telling myself as I walk home and collapse into a puddle of self-pity with a bag full of candy.  
 
 "Those are those 'Comfort Candies' aren't they?" my room-mate Jad says, throwing himself on the couch beside me. "In the year we've lived together, I've never seen you smiling while eating those jujubes."
 
@@ -12,7 +12,7 @@ It's one in the morning, but Jad's still in the mood to talk. He has a poly-phas
 
 His foot taps out the same rhythm that I usually hear when he's in front of a whiteboard solving a problem. He reaches into his pocket and takes out a stress ball, branded with the logo of some start-up I've never heard of. He rolls it between his hands with the same ceremony as a therapist asking you to lay down on the couch.
 "Given the evidence presented before me," he says, "I'm going to hypothesize that Abby broke up with you." Some people use "Divide and Conquer" as a method to solving computer problems. Jad uses it as his life's motto. I've learned it's easier to just go with it.
-"She says we drifted apart over the summer," I say, "because we were so far away. Now, she says it wasn't just the distance and the problem is I'm not 'emotionally responsive' enough. What does that even mean?"
+"She said we drifted apart over the summer," I say, "because we were so far away. Now, she says it wasn't just the distance and the problem is I'm not 'emotionally responsive' enough. What does that even mean?"
 "Why didn't you ask her?"
 "I prefer clean and quick break-ups. Do you think I'm emotionally unresponsive?"
 "You want the honest answer?"
@@ -39,7 +39,7 @@ I grab another handful of jujubes in preparation. "Hit me."
 
 I like that idea a lot better.
 
-Jad is the only owner of a bio-printer in our city and maybe for miles around. From what I understand, there a lot of fancy compounds in the world made out of basic materials that are easily acquirable. If you get that material, you can print it into whatever you want. The LSD he printed out for us last week is just carbon, hydrogen, nitrogen and oxygen. How you get from code to the LSD, I'm not so clear on, but as long as the LSD keeps working, I'm not too worried.
+Jad is the only owner of a bio-printer in our city and maybe for miles around. From what I understand, there are a lot of fancy compounds in the world made out of basic materials that are easily acquirable. If you get that material, you can print it into whatever you want. The LSD he printed out for us last week is just carbon, hydrogen, nitrogen and oxygen. How you get from code to the LSD, I'm not so clear on, but as long as the LSD keeps working, I'm not too worried.
 
 Jad taps on his phone a few times and I hear the bio-printer start in his bedroom. I smell the usual synthetic aroma coming from the printer, except this time with a unique hint of strawberry.
 
@@ -50,6 +50,8 @@ With another tap, he sends me the research papers.
 They seem legitimate as far as my high school knowledge of biology is concerned.
 "Okay," I say, "but I'm stopping as soon as things get too weird."
 "Of course", he says, smiling reassuringly.
+
+-
 
 It first sneaks up on me a couple of days later while I'm sitting in Ecology class. We're talking about these tropical frogs that went extinct and a ball of emotion starts to build in my chest. I feel the all-encompassing despair that would come with being of the last of your species, unable to understand why everything you've ever known is coming to an end. To know without a doubt that there is no future left. The prof says that this tragedy is due in part to our carnivorous diet, which encourages the deforestation of the Amazon. Despite my heart swelling with righteous indignation, the best thing I can come up with is choosing a veggie burger for lunch.
 
@@ -87,6 +89,8 @@ She's not very convincing, but all it takes is one photo of a starving child to 
 
 That night, I can't sleep. My mind keeps conjuring up the girl. In particular, her excitement and eagerness as she tried to convince me to be involved in something that she cares so much about. Abby's questions drill themselves in parallel into my brain. What do I want? What do I care about? My nihilistic counter-arguments, usually so strong and impenetrable, now seem flat and unimaginative.
 
+-
+
 The next morning, Jad knocks on my door to give me the pills for the next week, I flip him off without turning away from my textbook.
 
 "Fuck caring. I want my old life back."
@@ -123,6 +127,8 @@ That stops me in my tracks.
 
 To his credit, Jad doesn't try to stop me as I rush through our living room and slam the door.
 
+-
+
 I start sleeping at my friend's place for the next few days, since my muscles clench in anger every time I consider going back to my apartment. Post-empathy is a weird state of being. I used to care about all these things, but now I can close my bubble and focus on myself. I can't decide if this is an improvement.
 
 One day while taking my meandering route back to my friend's house, I notice an older, chubby priest handing out leaflets. Instead of avoiding him like the plague like I usually do, I march towards him with an angry sense of purpose.
@@ -158,7 +164,7 @@ He relaxes now that he's in more familiar territory. "Of course. Assuming that i
 "Yes. The oddly detailed hypothetical pill."
 I thank him and walk away exposed, but relieved of some rock that's been sitting in my gut. 
 
-I'm taking a shortcut back to my friend's house through the engineering building when I hear someone crying in one of the computer labs. My body freezes in resistance, but I fight through it and go talk to her. She's bent over her keyboard, her arms hiding her face.
+I'm taking a shortcut when I hear someone crying in one of the computer labs. My body freezes in resistance, but I fight through it and go talk to her. She's bent over her keyboard, her arms hiding her face.
 
 "Hey," I say, "do you need someone to talk to?"
 
@@ -185,7 +191,7 @@ By the time I'm finished, she looks like she's trying to decide between punching
 "What?"
 "Right, you're pretty pissed at Jad right now. I guess I can talk to him myself."
 "The fuck? Why do you want to take the pill?"
-"Most of the reason I can't talk with my grandmother is the generational gap. She keeps gossiping about her neighbours, when all I really want to hear about is what she thinks about life, having lived this long. I think with the pill would help."
+"Most of the reason I can't talk with my grandmother is that we come from such different places, I don't even know where to start. She keeps gossiping about her neighbours, when all I really want to hear about is what she thinks about life, having lived this long. I think the pill would help."
 "But it sucks being on the pill. It makes you unhappy."
 "That's because you don't know how to handle it. What have you tried to remedy it Mr. New Leaf, other than Googling and vegetarian meals?"
 "Uh, I was thinking of volunteering?"
@@ -196,6 +202,8 @@ My muscles tighten up again, but I know how to push through them this time.
 "Right," I say, "I've gotta go talk to Jad."
 Abby calls out after me, as I get up to leave, "Are you sure you're not gay for him? I mean, you share more with him than you ever did with me."
 I flip her off over my shoulder and her laughter follows me down the hall.
+
+-
 
 I open the door to our apartment just as Jad is about to leave.
 
