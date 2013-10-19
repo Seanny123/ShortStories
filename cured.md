@@ -156,7 +156,7 @@ He relaxes now that he's in more familiar territory. "Of course. Assuming that i
 "So nature isn't ideal?"  
 "Not always. But you just have to keep in mind moderation. I'm assuming you only have a hypothetical pill and not a hypothetical brain control device too."  
 "Just the pill. But even if it isn't addictive, a pill is still a dependency, shouldn't my solution come from within myself?"  
-"Well, what is the self? Actually, let's not go there. Why do you think the solution has to come from yourself?"
+"Well, what is the self? Actually, let's not go there. Why do you think the solution has to come from yourself?"  
 "Because it's more admirable?"  
 "Doesn't having to care offer enough admirable struggles?"  
 "But if you take the pill, you're no longer in control."  
@@ -216,7 +216,7 @@ I open the door to our apartment just as Jad is about to leave.
 "Bullshit. The LSD smells different. You printed out more of the pill."  
 "This doesn't involve you. Don't worry about it."  
 "Are you going to try and sneak into the coffee?"  
-"Why do you care? You don't drink coffee."  
+"Why do you care? You don't drink the cafeteria coffee."  
 "Give me the bag Jad."  
 I make a grab for it, but Jad punches me in the face. I fall on the ground cringing and expecting more blows, but instead I hear sobs coming from Jad.  
 "Three mother fucking years." He says. "Three fucking years and nothing's changed."  
