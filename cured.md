@@ -124,13 +124,13 @@ That stops me in my tracks.
 "I needed to test the fix before I spread it to a wider audience."  
 "What? Are you planning to sneak it into the water supply like some super\-villain?"  
 "Actually, I was thinking the campus coffee machine might be the more practical vector of propagation."  
-"I'm not even going to try and counter that. Jad, the pills have made you completely insane and I am getting the hell out of here."
+"I'm not even going to try and counter that. Jad, the pills have made you completely insane and I am moving the hell out."
 
 To his credit, Jad doesn't try to stop me as I rush through our living room and slam the door.
 
 \-
 
-I start sleeping at my friend's place for the next few days, since my muscles clench in anger every time I consider going back to my apartment. Post\-empathy is a weird state of being. I used to care about all these things, but now I can close my bubble and focus on myself. I can't decide if this is an improvement.
+Post\-empathy is a weird state of being. I used to care about all these things, but now I can close my bubble and focus on myself. I can't decide if this is an improvement.
 
 One day while taking my meandering route back to my friend's house, I notice an older, chubby priest handing out leaflets. Instead of avoiding him like the plague like I usually do, I march towards him with an angry sense of purpose.
 
@@ -165,7 +165,7 @@ He relaxes now that he's in more familiar territory. "Of course. Assuming that i
 "Yes. The oddly detailed hypothetical pill."  
 I thank him and walk away exposed, but relieved of some rock that's been sitting in my gut. 
 
-I'm taking a shortcut when I hear someone crying in one of the computer labs. My body freezes in resistance, but I fight through it and go talk to her. She's bent over her keyboard, her arms hiding her face.
+I'm taking a shortcut back home when I hear someone crying in one of the computer labs. My body freezes in resistance, but I fight through it and go talk to her. She's bent over her keyboard, her arms hiding her face.
 
 "Hey," I say, "do you need someone to talk to?"
 
@@ -245,13 +245,13 @@ It scared the hell out of me. I had been in a lot of fights before, mostly when 
 
 He lets his head fall in his hands.
 
-"Maybe it doesn't work. Maybe you can't change a person."
+"Maybe it doesn't work. Maybe human nature is immutable."
 
 I start to laugh.
 
 "What?" Jad says.  
-"I hate you," I say, "but it worked for me. I'm changed. More importantly, I know that if I want to make it last I'll have to work at it. That's why I don't want you to put it in the coffee. I mean, yeah it's stupid, illegal and crazy, but it also won't work. The pill doesn't give you super\-powers, it makes you weak. If you don't let people choose, then they won't change."  
-"You call taking a vegetarian meal a significant change?"  
+"I hate you," I say, "but it worked for me. I'm changed and I know that if I want to make it last I'll have to work at it. That's why I don't want you to put it in the coffee. I mean, yeah, it's stupid, illegal and crazy, but it also won't change people in the way you want. The pill doesn't give you super\-powers, it makes you weak. If you don't let people choose, then they won't change."  
+"You call taking a vegetarian meal significant progress?"  
 "Of course not. That's sympathy, but you have to start somewhere."  
 
 I put my hand on my jaw and it explodes in pain.
