@@ -1,4 +1,5 @@
 Cured
+===
 
 Abby's hair blows in the wind as we walk in the park beside her apartment. It will be someone else running their fingers through her hair now, I guess.  
  
@@ -10,32 +11,32 @@ She sighs, so I guess that means I win. At least that's what I keep telling myse
 
 It's one in the morning, but Jad's still in the mood to talk. He has a poly-phasic sleep cycle which means he sleeps something like four hours a day in half hour chunks.
 
-His foot taps out the same rhythm that I usually hear when he's in front of a whiteboard solving a problem. He reaches into his pocket and takes out a stress ball, branded with the logo of some start-up I've never heard of. He rolls it between his hands with the same ceremony as a therapist asking you to lay down on the couch.
-"Given the evidence presented before me," he says, "I'm going to hypothesize that Abby broke up with you." Some people use "Divide and Conquer" as a method to solving computer problems. Jad uses it as his life's motto. I've learned it's easier to just go with it.
-"She said we drifted apart over the summer," I say, "because we were so far away. Now, she says it wasn't just the distance and the problem is I'm not 'emotionally responsive' enough. What does that even mean?"
-"Why didn't you ask her?"
-"I prefer clean and quick break-ups. Do you think I'm emotionally unresponsive?"
-"You want the honest answer?"
-I grab another handful of jujubes in preparation. "Hit me."
-"You don't connect emotionally with other people and I doubt you even know how to connect with yourself."
-"I connect with myself the same way everyone else does. One hand on the mouse, the other hand on my..."
-"First point. What I mean is you don't seem to be able to imagine anyone complexly."
-"What? I understand people."
-"When I introduced you to my friend Dev, you said he smelled pretty good for a hippy."
-"It was a joke. Also, I've never met a person with dreadlocks who wasn't a hippy."
-"Second point. What is it you are actually working towards? I've only heard you mention things you hate, never anything you've loved."
-“Why do I need to 'work towards something'? And even if you're right about these 'problems', what can I do about them anyways?”
-"Depends. Ideally, what would you want achieve?"
-"Closure?"
-"Do you think she's right?"
-"No..."
-"I think our old friend the scientific method could help here."
-"Our friend?"
-"What if you tried being a more caring person? You know, fake it until you make it and analyse the results."
-"How do I even fake that?"
-"You can try cognitive behaviour therapy.”
-“That sounds like something out of a self-help book.”
-“Or there might be something we can print.”
+His foot taps out the same rhythm that I usually hear when he's in front of a whiteboard solving a problem. He reaches into his pocket and takes out a stress ball, branded with the logo of some start-up I've never heard of. He rolls it between his hands with the same ceremony as a therapist asking you to lay down on the couch.  
+"Given the evidence presented before me," he says, "I'm going to hypothesize that Abby broke up with you." Some people use "Divide and Conquer" as a method to solving computer problems. Jad uses it as his life's motto. I've learned it's easier to just go with it.  
+"She said we drifted apart over the summer," I say, "because we were so far away. Now, she says it wasn't just the distance and the problem is I'm not 'emotionally responsive' enough. What does that even mean?"  
+"Why didn't you ask her?"  
+"I prefer clean and quick break-ups. Do you think I'm emotionally unresponsive?"  
+"You want the honest answer?"  
+I grab another handful of jujubes in preparation. "Hit me."  
+"You don't connect emotionally with other people and I doubt you even know how to connect with yourself."  
+"I connect with myself the same way everyone else does. One hand on the mouse, the other hand on my..."  
+"First point. What I mean is you don't seem to be able to imagine anyone complexly."  
+"What? I understand people."  
+"When I introduced you to my friend Dev, you said he smelled pretty good for a hippy."  
+"It was a joke. Also, I've never met a person with dreadlocks who wasn't a hippy."  
+"Second point. What is it you are actually working towards? I've only heard you mention things you hate, never anything you've loved."  
+“Why do I need to 'work towards something'? And even if you're right about these 'problems', what can I do about them anyways?”  
+"Depends. Ideally, what would you want achieve?"  
+"Closure?"  
+"Do you think she's right?"  
+"No..."  
+"I think our old friend the scientific method could help here."  
+"Our friend?"  
+"What if you tried being a more caring person? You know, fake it until you make it and analyse the results."  
+"How do I even fake that?"  
+"You can try cognitive behaviour therapy.”  
+“That sounds like something out of a self-help book.”  
+“Or there might be something we can print.”  
 
 I like that idea a lot better.
 
@@ -43,13 +44,13 @@ Jad is the only owner of a bio-printer in our city and maybe for miles around. F
 
 Jad taps on his phone a few times and I hear the bio-printer start in his bedroom. I smell the usual synthetic aroma coming from the printer, except this time with a unique hint of strawberry.
 
-"Some researchers in Austria found this compound that enhances the amount of empathy you feel," Jad says, "which is basically what you're lacking."
-"What's the catch? Spontaneous tentacle production?" I say.
-With another tap, he sends me the research papers. 
-"Check it out for yourself", he says.
-They seem legitimate as far as my high school knowledge of biology is concerned.
-"Okay," I say, "but I'm stopping as soon as things get too weird."
-"Of course", he says, smiling reassuringly.
+"Some researchers in Austria found this compound that enhances the amount of empathy you feel," Jad says, "which is basically what you're lacking."  
+"What's the catch? Spontaneous tentacle production?" I say.  
+With another tap, he sends me the research papers.   
+"Check it out for yourself", he says.  
+They seem legitimate as far as my high school knowledge of biology is concerned.  
+"Okay," I say, "but I'm stopping as soon as things get too weird."  
+"Of course", he says, smiling reassuringly.  
 
 -
 
@@ -82,8 +83,8 @@ I cycle through the plausible options desperately, "Yes. No. Maybe? I... I have 
 
 The next day on my way home, I cross paths with a student trying to get donations for a charity.
 
-"Hey, do you have a minute?" she asks, earnestly concerned that I might be too busy.
-"Sure." I don't, but I can't bring myself to walk past her.
+"Hey, do you have a minute?" she asks, earnestly concerned that I might be too busy.  
+"Sure." I don't, but I can't bring myself to walk past her.  
 
 She's not very convincing, but all it takes is one photo of a starving child to vacuum out my wallet. I have to sell my iPod so I can eat for the next month, seeing as I'm too embarrassed to ask my parents for money.
 
@@ -93,17 +94,17 @@ That night, I can't sleep. My mind keeps conjuring up the girl. In particular, h
 
 The next morning, Jad knocks on my door to give me the pills for the next week, I flip him off without turning away from my textbook.
 
-"Fuck caring. I want my old life back."
-Jad is taken aback, "What? We just got started."
+"Fuck caring. I want my old life back."  
+Jad is taken aback, "What? We just got started."  
 
-"This shit..." I turn around like a James Bond villain, but clutching my depression jujubes instead of petting a cat, "has gotten too ridiculous. I'm crying at movie endings that aren't even sad."
-"We'll lower the dose some more."
-"When people ask me for charity donations, my wallet becomes a liability."
-"I'm sure a lower dose will fix those problems."
-"No, fuck it Jad, I need my apathy to function. I used to be happy. Now, I'm having existential crises at night, which is something I thought only emo kids did." 
-"So your priorities are re-aligning. Isn't this what you wanted?"
-My voice approaches hysteria. "Maybe, but I still wanted to know who the hell I was. I DON'T EVEN LIKE THESE FUCKING JUJUBES ANYMORE!" I shake the bag in front of me accenting my confusion.
-Jad pleads, "Come on don't give up now!"
+"This shit..." I turn around like a James Bond villain, but clutching my depression jujubes instead of petting a cat, "has gotten too ridiculous. I'm crying at movie endings that aren't even sad."  
+"We'll lower the dose some more."  
+"When people ask me for charity donations, my wallet becomes a liability."  
+"I'm sure a lower dose will fix those problems."  
+"No, fuck it Jad, I need my apathy to function. I used to be happy. Now, I'm having existential crises at night, which is something I thought only emo kids did."  
+"So your priorities are re-aligning. Isn't this what you wanted?"  
+My voice approaches hysteria. "Maybe, but I still wanted to know who the hell I was. I DON'T EVEN LIKE THESE FUCKING JUJUBES ANYMORE!" I shake the bag in front of me accenting my confusion.  
+Jad pleads, "Come on don't give up now!"  
 
 Although Jad does give me suggestions from time to time, ultimately he has always let me choose the path of my life. He would work like crazy on his projects and I would mess around on the Internet. The only reason he would be trying to shove these pills down my throat is...
 
@@ -111,18 +112,18 @@ Although Jad does give me suggestions from time to time, ultimately he has alway
 
 Just as I thought, zero relevant results. Jad sighs behind me.
 
-"You son of a bitch!" I get up off my chair and throw the jujubes to the ground,
+"You son of a bitch!" I get up off my chair and throw the jujubes to the ground,  
 "You've been waiting all along for me to be vulnerable and now you're killing me for one of your fucking experiments!"
-"I would hardly call increased motivation and emotional awareness fatal..."
-"You don't know what the long term effects are!"
-"Please, you make it sound like I didn't try it on myself first."
+"I would hardly call increased motivation and emotional awareness fatal..."  
+"You don't know what the long term effects are!"  
+"Please, you make it sound like I didn't try it on myself first."  
 
 That stops me in my tracks.
 
-"Why are you taking these things?" I ask as my fist unclenches.
-"I needed to test the fix before I spread it to a wider audience." 
-"What? Are you planning to sneak it into the water supply like some super-villain?"
-"Actually, I was thinking the campus coffee machine might be the more practical vector of propagation."
+"Why are you taking these things?" I ask as my fist unclenches.  
+"I needed to test the fix before I spread it to a wider audience."  
+"What? Are you planning to sneak it into the water supply like some super-villain?"  
+"Actually, I was thinking the campus coffee machine might be the more practical vector of propagation."  
 "I'm not even going to try and counter that. Jad, the pills have made you completely insane and I am getting the hell out of here."
 
 To his credit, Jad doesn't try to stop me as I rush through our living room and slam the door.
@@ -134,34 +135,34 @@ I start sleeping at my friend's place for the next few days, since my muscles cl
 One day while taking my meandering route back to my friend's house, I notice an older, chubby priest handing out leaflets. Instead of avoiding him like the plague like I usually do, I march towards him with an angry sense of purpose.
 
 He extends a black and white print-out towards me. "Hey, do you want help the homeless acquire Internet skills?"
-I snatch the print-out from his hand and look him in the eye. "Like most people today, I'm going to lie to you and say yes, but never follow up on anything. Do you know why?"
-He's unfazed by my emotional instability. "Because you're intimidated by responsibility?"
-"Nope. Because I can't imagine the effort being worth the cost of leaving my cozy home."
-"Listen, I didn't mean to anger..."
-"Sorry. I'm not angry, you just seem to have some answers I need."
-"Okay..."
-"As I was saying, apathy stops me from helping people, so ideally, I should fix it." 
-"Sure."
-"What if, hypothetically, you could take a pill that made you more emotionally sensitive to other people's suffering. Would you take it?"
-He relaxes now that he's in more familiar territory. "Of course. Assuming that it has no ulterior cost."
-"But it's hard being empathetic. It tires you and it makes it easier for people to take advantage of you."
-"Assuming that you can avoid exploitation with thoughtfulness, it sounds like a move in the right direction to me."
-"But it stops you from being happy. It's not natural."
-"What's your natural state like?"
-"Hypothetically?"
-"Hypothetically."
-"It sucks. I know that I should care, but I can never make the first step. I keep drifting. Maybe I'm bad at being a human being."
-"Being a good human being isn't a default state. It's something you and I will always be learning. If your definitions of right and wrong didn't change since you were five, you would be seen as a menace to society."
-"So nature isn't ideal?"
-"Not always. But you just have to keep in mind moderation. I'm assuming you only have a hypothetical pill and not a hypothetical brain control device too."
-"Just the pill. But even if it isn't addictive, a pill is still a dependency, shouldn't my solution come from within myself?"
+I snatch the print-out from his hand and look him in the eye. "Like most people today, I'm going to lie to you and say yes, but never follow up on anything. Do you know why?"  
+He's unfazed by my emotional instability. "Because you're intimidated by responsibility?"  
+"Nope. Because I can't imagine the effort being worth the cost of leaving my cozy home."  
+"Listen, I didn't mean to anger..."  
+"Sorry. I'm not angry, you just seem to have some answers I need."  
+"Okay..."  
+"As I was saying, apathy stops me from helping people, so ideally, I should fix it."  
+"Sure."  
+"What if, hypothetically, you could take a pill that made you more emotionally sensitive to other people's suffering. Would you take it?"  
+He relaxes now that he's in more familiar territory. "Of course. Assuming that it has no ulterior cost."  
+"But it's hard being empathetic. It tires you and it makes it easier for people to take advantage of you."  
+"Assuming that you can avoid exploitation with thoughtfulness, it sounds like a move in the right direction to me."  
+"But it stops you from being happy. It's not natural."  
+"What's your natural state like?"  
+"Hypothetically?"  
+"Hypothetically."  
+"It sucks. I know that I should care, but I can never make the first step. I keep drifting. Maybe I'm bad at being a human being."  
+"Being a good human being isn't a default state. It's something you and I will always be learning. If your definitions of right and wrong didn't change since you were five, you would be seen as a menace to society."  
+"So nature isn't ideal?"  
+"Not always. But you just have to keep in mind moderation. I'm assuming you only have a hypothetical pill and not a hypothetical brain control device too."  
+"Just the pill. But even if it isn't addictive, a pill is still a dependency, shouldn't my solution come from within myself?"  
 "Well, what is the self? Actually, let's not go there. Why do you think the solution has to come from yourself?"
-"Because it's more admirable?"
-"Doesn't having to care offer enough admirable struggles?"
-"But if you take the pill, you're no longer in control."
-"The way I see it, control is when you're still able to define and choose your own choices. This passes that test. You create the choice of caring and you enable it when you take the pill."
-"The hypothetical pill."
-"Yes. The oddly detailed hypothetical pill."
+"Because it's more admirable?"  
+"Doesn't having to care offer enough admirable struggles?"  
+"But if you take the pill, you're no longer in control."  
+"The way I see it, control is when you're still able to define and choose your own choices. This passes that test. You create the choice of caring and you enable it when you take the pill."  
+"The hypothetical pill."  
+"Yes. The oddly detailed hypothetical pill."  
 I thank him and walk away exposed, but relieved of some rock that's been sitting in my gut. 
 
 I'm taking a shortcut when I hear someone crying in one of the computer labs. My body freezes in resistance, but I fight through it and go talk to her. She's bent over her keyboard, her arms hiding her face.
@@ -178,55 +179,55 @@ Since there's no dignity to salvage at this point, I might as well be honest. "W
 
 "Humour me. I'm trying to turn over a new leaf and your only other option at this point is the guy playing Starcraft behind you."
 
-She lets out a weak laugh and then lets her shoulders slump, "Fuck. It's so silly now that I say it out loud, but my grandmother is in the hospital. She only has to get some surgery and there's a two percent chance that she'll die, but I keep thinking about how that's almost the same chance as picking card from a deck. I'm not ready to lose her, even though we've never been that close. Now I'm wondering maybe the fact that we aren't that close is mostly my fault. Honestly, I probably just need to get out of this lab and go for a walk." She wipes her tears with the sleeve of her sweater. "God, who the fuck cries in public when they're this old?"
+She lets out a weak laugh and then lets her shoulders slump, "Fuck. It's so silly now that I say it out loud, but my grandmother is in the hospital. She only has to get some surgery and there's a two percent chance that she'll die, but I keep thinking about how that's almost the same chance as picking card from a deck. I'm not ready to lose her, even though we've never been that close. Now I'm wondering maybe the fact that we aren't that close is mostly my fault. Honestly, I probably just need to get out of this lab and go for a walk." She wipes her tears with the sleeve of her sweater. "God, who cries in public when they're this old?"
 
-"Well, recently me..."
-"Seriously?" She's smiling now. Would pre-drug me miss a smile?
-"What the fuck happened?" she says.
-My muscles tighten in my chest initially, but this is what empathetic people do, they share.
-"After you broke up with me, I wondered if what you said had some truth in it, so Jad proposed a little experiment..."
-By the time I'm finished, she looks like she's trying to decide between punching me and hugging me. She wisely opts for neither.
+"Well, recently me..."  
+"Seriously?" She's smiling now. Would pre-drug me miss a smile?  
+"What the fuck happened?" she says.  
+My muscles tighten in my chest initially, but this is what empathetic people do, they share.  
+"After you broke up with me, I wondered if what you said had some truth in it, so Jad proposed a little experiment..."  
+By the time I'm finished, she looks like she's trying to decide between punching me and hugging me. She wisely opts for neither.  
 
-"Can you get me a supply of the pill from Jad?"
-"What?"
-"Right, you're pretty pissed at Jad right now. I guess I can talk to him myself."
-"The fuck? Why do you want to take the pill?"
-"Most of the reason I can't talk with my grandmother is that we come from such different places, I don't even know where to start. She keeps gossiping about her neighbours, when all I really want to hear about is what she thinks about life, having lived this long. I think the pill would help."
-"But it sucks being on the pill. It makes you unhappy."
-"That's because you don't know how to handle it. What have you tried to remedy it Mr. New Leaf, other than Googling and vegetarian meals?"
-"Uh, I was thinking of volunteering?"
-"Where?"
-"Africa?"
-"Have you thought of starting to care for the people around you before you try to care for the world?"
-My muscles tighten up again, but I know how to push through them this time.
-"Right," I say, "I've gotta go talk to Jad."
-Abby calls out after me, as I get up to leave, "Are you sure you're not gay for him? I mean, you share more with him than you ever did with me."
-I flip her off over my shoulder and her laughter follows me down the hall.
+"Can you get me a supply of the pill from Jad?"  
+"What?"  
+"Right, you're pretty pissed at Jad right now. I guess I can talk to him myself."  
+"The fuck? Why do you want to take the pill?"  
+"Most of the reason I can't talk with my grandmother is that we come from such different places, I don't even know where to start. She keeps gossiping about her neighbours, when all I really want to hear about is what she thinks about life, having lived this long. I think the pill would help."  
+"But it sucks being on the pill. It makes you unhappy."  
+"That's because you don't know how to handle it. What have you tried to remedy it Mr. New Leaf, other than Googling and vegetarian meals?"  
+"Uh, I was thinking of volunteering?"  
+"Where?"  
+"Africa?"  
+"Have you thought of starting to care for the people around you before you try to care for the world?"  
+My muscles tighten up again, but I know how to push through them this time.  
+"Right," I say, "I've gotta go talk to Jad."  
+Abby calls out after me, as I get up to leave, "Are you sure you're not gay for him? I mean, you share more with him than you ever did with me."  
+I flip her off over my shoulder and her laughter follows me down the hall.  
 
 -
 
 I open the door to our apartment just as Jad is about to leave.
 
-"Listen," I say, "about the pills. I've been thinking..." That's when the smell of strawberries hits me.
-"Wait. Jad," I say,"what's in your backpack?"
-"Computer," he says, "snacks, the usual."
-"I can smell something printed."
-"Some LSD for my friends later."
-"Bullshit. The LSD smells different. You printed out more of the pill."
-"This doesn't involve you. Don't worry about it."
-"Are you going to try and sneak into the coffee?"
-"Why do you care? You don't drink coffee."
-"Give me the bag Jad."
-I make a grab for it, but Jad punches me in the face. I fall on the ground cringing and expecting more blows, but instead I hear sobs coming from Jad.
-"Three mother fucking years." He says. "Three fucking years and nothing's changed."
-"Changed?"
-"Do you know why I started trying to 'fix' everyone?"
-"Because you're crazy?"
-"Close. Because I needed the fix more than anyone else."
-"What?"
+"Listen," I say, "about the pills. I've been thinking..." That's when the smell of strawberries hits me.  
+"Wait. Jad," I say,"what's in your backpack?"  
+"Computer," he says, "snacks, the usual."  
+"I can smell something printed."  
+"Some LSD for my friends later."  
+"Bullshit. The LSD smells different. You printed out more of the pill."  
+"This doesn't involve you. Don't worry about it."  
+"Are you going to try and sneak into the coffee?"  
+"Why do you care? You don't drink coffee."  
+"Give me the bag Jad."  
+I make a grab for it, but Jad punches me in the face. I fall on the ground cringing and expecting more blows, but instead I hear sobs coming from Jad.  
+"Three mother fucking years." He says. "Three fucking years and nothing's changed."  
+"Changed?"  
+"Do you know why I started trying to 'fix' everyone?"  
+"Because you're crazy?"  
+"Close. Because I needed the fix more than anyone else."  
+"What?"  
 
-"It happened back when I was in San Francisco. I'm sitting in this bar, waiting for a friend to show up. There's this girl who is giving me glances, so I walk over. We hit it off and just as I'm starting to think of asking her for her number, her boyfriend shows up. Preppy looking guy, kind of scrawny. He doesn't even tell me off right away. He joins the conversation, hinting for me to leave, but I don't because I want to show to his girlfriend how much more interesting I am than the average person. So finally, he says it out loud, 'Hey. Back off. She's taken.'
-I leave, but not before saying one final remark, 'You know you could do better.'
+"It happened back when I was in San Francisco. I'm sitting in this bar, waiting for a friend to show up. There's this girl who is giving me glances, so I walk over. We hit it off and just as I'm starting to think of asking her for her number, her boyfriend shows up. Preppy looking guy, kind of scrawny. He doesn't even tell me off right away. He joins the conversation, hinting for me to leave, but I don't because I want to show to his girlfriend how much more interesting I am than the average person. So finally, he says it out loud, 'Hey. Back off. She's taken.'  
+I leave, but not before saying one final remark, 'You know you could do better.'  
 
 That pisses him off, which is what I wanted, so he shoves me from behind. It's the tiniest of physical triggers, but it ignites the powder keg that I've been building up all night.
 
@@ -248,23 +249,23 @@ He lets his head fall in his hands.
 
 I start to laugh.
 
-"What?" Jad says.
-"I hate you," I say, "but it worked for me. I'm changed. More importantly, I know that if I want to make it last I'll have to work at it. That's why I don't want you to put it in the coffee. I mean, yeah it's stupid, illegal and crazy, but it also won't work. The pill doesn't give you super-powers, it makes you weak. If you don't let people choose, then they won't change."
-"You call taking a vegetarian meal a significant change?"
-"Of course not. That's sympathy, but you have to start somewhere."
+"What?" Jad says.  
+"I hate you," I say, "but it worked for me. I'm changed. More importantly, I know that if I want to make it last I'll have to work at it. That's why I don't want you to put it in the coffee. I mean, yeah it's stupid, illegal and crazy, but it also won't work. The pill doesn't give you super-powers, it makes you weak. If you don't let people choose, then they won't change."  
+"You call taking a vegetarian meal a significant change?"  
+"Of course not. That's sympathy, but you have to start somewhere."  
 
 I put my hand on my jaw and it explodes in pain.
 
 "Speaking of turning empathy into action," I say, "can you drive me to the walk-in clinic? I think you broke my jaw."
-"No," Jad says, "it's just bruised. I would know if I broke it. I'll get you some ice."
-"You don't have some magic un-bruising pill?"
-"I do, but it makes your balls fall off."
-"Oh god, how did they find..."
-"I was joking. I'll get you some ibuprofen."
+"No," Jad says, "it's just bruised. I would know if I broke it. I'll get you some ice."  
+"You don't have some magic un-bruising pill?"  
+"I do, but it makes your balls fall off."  
+"Oh god, how did they find..."  
+"I was joking. I'll get you some ibuprofen."  
 
 I let a crooked smile spread across my face as I lean my head against the wall. The warmth of a rekindled friendship spreads throughout my chest and contrasts nicely with the ice I apply on my chin.
 
-"So if I have to let people choose, what's next then?"
+"So if I have to let people choose, what's next then?"  
 "I don't know, but I'd like to talk about it."
 
 I realize that this might be the first time I've ever felt excited by the uncertain blank slate provided by the future.
