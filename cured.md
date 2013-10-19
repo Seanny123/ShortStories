@@ -3,19 +3,19 @@ Cured
 
 Abby's hair blows in the wind as we walk in the park beside her apartment. It will be someone else running their fingers through her hair now, I guess.  
  
-“It’s like you’re only half-there when we're together,” Abby says. "Honestly, what do you want Tony? What do you care about?" This hurts more than it should given how many times this has happened before.  
+“It’s like you’re only half\-there when we're together,” Abby says. "Honestly, what do you want Tony? What do you care about?" This hurts more than it should given how many times this has happened before.  
 "Well, I was hoping to see a movie with you," I say, "but that doesn't seem to be an option anymore."  
-She sighs, so I guess that means I win. At least that's what I keep telling myself as I walk home and collapse into a puddle of self-pity with a bag full of candy.  
+She sighs, so I guess that means I win. At least that's what I keep telling myself as I walk home and collapse into a puddle of self\-pity with a bag full of candy.  
 
-"Those are those 'Comfort Candies' aren't they?" my room-mate Jad says, throwing himself on the couch beside me. "In the year we've lived together, I've never seen you smiling while eating those jujubes."
+"Those are those 'Comfort Candies' aren't they?" my room\-mate Jad says, throwing himself on the couch beside me. "In the year we've lived together, I've never seen you smiling while eating those jujubes."
 
-It's one in the morning, but Jad's still in the mood to talk. He has a poly-phasic sleep cycle which means he sleeps something like four hours a day in half hour chunks.
+It's one in the morning, but Jad's still in the mood to talk. He has a poly\-phasic sleep cycle which means he sleeps something like four hours a day in half hour chunks.
 
-His foot taps out the same rhythm that I usually hear when he's in front of a whiteboard solving a problem. He reaches into his pocket and takes out a stress ball, branded with the logo of some start-up I've never heard of. He rolls it between his hands with the same ceremony as a therapist asking you to lay down on the couch.  
+His foot taps out the same rhythm that I usually hear when he's in front of a whiteboard solving a problem. He reaches into his pocket and takes out a stress ball, branded with the logo of some start\-up I've never heard of. He rolls it between his hands with the same ceremony as a therapist asking you to lay down on the couch.  
 "Given the evidence presented before me," he says, "I'm going to hypothesize that Abby broke up with you." Some people use "Divide and Conquer" as a method to solving computer problems. Jad uses it as his life's motto. I've learned it's easier to just go with it.  
 "She said we drifted apart over the summer," I say, "because we were so far away. Now, she says it wasn't just the distance and the problem is I'm not 'emotionally responsive' enough. What does that even mean?"  
 "Why didn't you ask her?"  
-"I prefer clean and quick break-ups. Do you think I'm emotionally unresponsive?"  
+"I prefer clean and quick break\-ups. Do you think I'm emotionally unresponsive?"  
 "You want the honest answer?"  
 I grab another handful of jujubes in preparation. "Hit me."  
 "You don't connect emotionally with other people and I doubt you even know how to connect with yourself."  
@@ -35,14 +35,14 @@ I grab another handful of jujubes in preparation. "Hit me."
 "What if you tried being a more caring person? You know, fake it until you make it and analyse the results."  
 "How do I even fake that?"  
 "You can try cognitive behaviour therapy.”  
-“That sounds like something out of a self-help book.”  
+“That sounds like something out of a self\-help book.”  
 “Or there might be something we can print.”  
 
 I like that idea a lot better.
 
-Jad is the only owner of a bio-printer in our city and maybe for miles around. From what I understand, there are a lot of fancy compounds in the world made out of basic materials that are easily acquirable. If you get that material, you can print it into whatever you want. The LSD he printed out for us last week is just carbon, hydrogen, nitrogen and oxygen. How you get from code to the LSD, I'm not so clear on, but as long as the LSD keeps working, I'm not too worried.
+Jad is the only owner of a bio\-printer in our city and maybe for miles around. From what I understand, there are a lot of fancy compounds in the world made out of basic materials that are easily acquirable. If you get that material, you can print it into whatever you want. The LSD he printed out for us last week is just carbon, hydrogen, nitrogen and oxygen. How you get from code to the LSD, I'm not so clear on, but as long as the LSD keeps working, I'm not too worried.
 
-Jad taps on his phone a few times and I hear the bio-printer start in his bedroom. I smell the usual synthetic aroma coming from the printer, except this time with a unique hint of strawberry.
+Jad taps on his phone a few times and I hear the bio\-printer start in his bedroom. I smell the usual synthetic aroma coming from the printer, except this time with a unique hint of strawberry.
 
 "Some researchers in Austria found this compound that enhances the amount of empathy you feel," Jad says, "which is basically what you're lacking."  
 "What's the catch? Spontaneous tentacle production?" I say.  
@@ -52,9 +52,9 @@ They seem legitimate as far as my high school knowledge of biology is concerned.
 "Okay," I say, "but I'm stopping as soon as things get too weird."  
 "Of course", he says, smiling reassuringly.  
 
--
+\-
 
-It first sneaks up on me a couple of days later while I'm sitting in Ecology class. We're talking about these tropical frogs that went extinct and a ball of emotion starts to build in my chest. I feel the all-encompassing despair that would come with being of the last of your species, unable to understand why everything you've ever known is coming to an end. To know without a doubt that there is no future left. The prof says that this tragedy is due in part to our carnivorous diet, which encourages the deforestation of the Amazon. Despite my heart swelling with righteous indignation, the best thing I can come up with is choosing a veggie burger for lunch.
+It first sneaks up on me a couple of days later while I'm sitting in Ecology class. We're talking about these tropical frogs that went extinct and a ball of emotion starts to build in my chest. I feel the all\-encompassing despair that would come with being of the last of your species, unable to understand why everything you've ever known is coming to an end. To know without a doubt that there is no future left. The prof says that this tragedy is due in part to our carnivorous diet, which encourages the deforestation of the Amazon. Despite my heart swelling with righteous indignation, the best thing I can come up with is choosing a veggie burger for lunch.
 
 I notice it again when I get a coffee from Timmie's on my way home. The cashier is sluggish, but upon further examination, I can tell she's having a rough day. I decide to try to cheer her up.
 
@@ -71,9 +71,9 @@ I tell all of this to Jad while we eat dinner.
 
 "Just be careful you don't get exploited," he says while drinking his meal replacement shake.
 
-That night, I don't crave the lol-cats and videos of epic fails as much as I usually do. Instead, I start Googling all these things that I kept being told I should care about, but could never muster the motivation to investigate. Along the way, I find out that my vegetarian meal didn't help the frogs much and that the problem is way more complicated. Normally, pre-medication me would accept the world is doomed at this point, but now I want to know the truth, no matter how elusive it might be.
+That night, I don't crave the lol\-cats and videos of epic fails as much as I usually do. Instead, I start Googling all these things that I kept being told I should care about, but could never muster the motivation to investigate. Along the way, I find out that my vegetarian meal didn't help the frogs much and that the problem is way more complicated. Normally, pre\-medication me would accept the world is doomed at this point, but now I want to know the truth, no matter how elusive it might be.
 
-My first over-reaction happens while I'm eating lunch with my friend in the cafeteria on campus. In the movie we're watching, a group of people trapped on a subway car are hurtling towards the end of the track. Just when you think they're about to become human pancakes, the fail-safe on the track catches them and they're all saved. Tears of relief start streaming down my face.
+My first over\-reaction happens while I'm eating lunch with my friend in the cafeteria on campus. In the movie we're watching, a group of people trapped on a subway car are hurtling towards the end of the track. Just when you think they're about to become human pancakes, the fail\-safe on the track catches them and they're all saved. Tears of relief start streaming down my face.
 
 "Are you okay?" my friend asks cautiously.
 I try to look for an escape route, but come up blank. "Yeah. I'm fine," I croak, trying to wipe the tears from my face.
@@ -88,9 +88,9 @@ The next day on my way home, I cross paths with a student trying to get donation
 
 She's not very convincing, but all it takes is one photo of a starving child to vacuum out my wallet. I have to sell my iPod so I can eat for the next month, seeing as I'm too embarrassed to ask my parents for money.
 
-That night, I can't sleep. My mind keeps conjuring up the girl. In particular, her excitement and eagerness as she tried to convince me to be involved in something that she cares so much about. Abby's questions drill themselves in parallel into my brain. What do I want? What do I care about? My nihilistic counter-arguments, usually so strong and impenetrable, now seem flat and unimaginative.
+That night, I can't sleep. My mind keeps conjuring up the girl. In particular, her excitement and eagerness as she tried to convince me to be involved in something that she cares so much about. Abby's questions drill themselves in parallel into my brain. What do I want? What do I care about? My nihilistic counter\-arguments, usually so strong and impenetrable, now seem flat and unimaginative.
 
--
+\-
 
 The next morning, Jad knocks on my door to give me the pills for the next week, I flip him off without turning away from my textbook.
 
@@ -102,7 +102,7 @@ Jad is taken aback, "What? We just got started."
 "When people ask me for charity donations, my wallet becomes a liability."  
 "I'm sure a lower dose will fix those problems."  
 "No, fuck it Jad, I need my apathy to function. I used to be happy. Now, I'm having existential crises at night, which is something I thought only emo kids did."  
-"So your priorities are re-aligning. Isn't this what you wanted?"  
+"So your priorities are re\-aligning. Isn't this what you wanted?"  
 My voice approaches hysteria. "Maybe, but I still wanted to know who the hell I was. I DON'T EVEN LIKE THESE FUCKING JUJUBES ANYMORE!" I shake the bag in front of me accenting my confusion.  
 Jad pleads, "Come on don't give up now!"  
 
@@ -122,20 +122,20 @@ That stops me in my tracks.
 
 "Why are you taking these things?" I ask as my fist unclenches.  
 "I needed to test the fix before I spread it to a wider audience."  
-"What? Are you planning to sneak it into the water supply like some super-villain?"  
+"What? Are you planning to sneak it into the water supply like some super\-villain?"  
 "Actually, I was thinking the campus coffee machine might be the more practical vector of propagation."  
 "I'm not even going to try and counter that. Jad, the pills have made you completely insane and I am getting the hell out of here."
 
 To his credit, Jad doesn't try to stop me as I rush through our living room and slam the door.
 
--
+\-
 
-I start sleeping at my friend's place for the next few days, since my muscles clench in anger every time I consider going back to my apartment. Post-empathy is a weird state of being. I used to care about all these things, but now I can close my bubble and focus on myself. I can't decide if this is an improvement.
+I start sleeping at my friend's place for the next few days, since my muscles clench in anger every time I consider going back to my apartment. Post\-empathy is a weird state of being. I used to care about all these things, but now I can close my bubble and focus on myself. I can't decide if this is an improvement.
 
 One day while taking my meandering route back to my friend's house, I notice an older, chubby priest handing out leaflets. Instead of avoiding him like the plague like I usually do, I march towards him with an angry sense of purpose.
 
-He extends a black and white print-out towards me. "Hey, do you want help the homeless acquire Internet skills?"
-I snatch the print-out from his hand and look him in the eye. "Like most people today, I'm going to lie to you and say yes, but never follow up on anything. Do you know why?"  
+He extends a black and white print\-out towards me. "Hey, do you want help the homeless acquire Internet skills?"
+I snatch the print\-out from his hand and look him in the eye. "Like most people today, I'm going to lie to you and say yes, but never follow up on anything. Do you know why?"  
 He's unfazed by my emotional instability. "Because you're intimidated by responsibility?"  
 "Nope. Because I can't imagine the effort being worth the cost of leaving my cozy home."  
 "Listen, I didn't mean to anger..."  
@@ -182,7 +182,7 @@ Since there's no dignity to salvage at this point, I might as well be honest. "W
 She lets out a weak laugh and then lets her shoulders slump, "Fuck. It's so silly now that I say it out loud, but my grandmother is in the hospital. She only has to get some surgery and there's a two percent chance that she'll die, but I keep thinking about how that's almost the same chance as picking card from a deck. I'm not ready to lose her, even though we've never been that close. Now I'm wondering maybe the fact that we aren't that close is mostly my fault. Honestly, I probably just need to get out of this lab and go for a walk." She wipes her tears with the sleeve of her sweater. "God, who cries in public when they're this old?"
 
 "Well, recently me..."  
-"Seriously?" She's smiling now. Would pre-drug me miss a smile?  
+"Seriously?" She's smiling now. Would pre\-drug me miss a smile?  
 "What the fuck happened?" she says.  
 My muscles tighten in my chest initially, but this is what empathetic people do, they share.  
 "After you broke up with me, I wondered if what you said had some truth in it, so Jad proposed a little experiment..."  
@@ -204,7 +204,7 @@ My muscles tighten up again, but I know how to push through them this time.
 Abby calls out after me, as I get up to leave, "Are you sure you're not gay for him? I mean, you share more with him than you ever did with me."  
 I flip her off over my shoulder and her laughter follows me down the hall.  
 
--
+\-
 
 I open the door to our apartment just as Jad is about to leave.
 
@@ -250,15 +250,15 @@ He lets his head fall in his hands.
 I start to laugh.
 
 "What?" Jad says.  
-"I hate you," I say, "but it worked for me. I'm changed. More importantly, I know that if I want to make it last I'll have to work at it. That's why I don't want you to put it in the coffee. I mean, yeah it's stupid, illegal and crazy, but it also won't work. The pill doesn't give you super-powers, it makes you weak. If you don't let people choose, then they won't change."  
+"I hate you," I say, "but it worked for me. I'm changed. More importantly, I know that if I want to make it last I'll have to work at it. That's why I don't want you to put it in the coffee. I mean, yeah it's stupid, illegal and crazy, but it also won't work. The pill doesn't give you super\-powers, it makes you weak. If you don't let people choose, then they won't change."  
 "You call taking a vegetarian meal a significant change?"  
 "Of course not. That's sympathy, but you have to start somewhere."  
 
 I put my hand on my jaw and it explodes in pain.
 
-"Speaking of turning empathy into action," I say, "can you drive me to the walk-in clinic? I think you broke my jaw."
+"Speaking of turning empathy into action," I say, "can you drive me to the walk\-in clinic? I think you broke my jaw."
 "No," Jad says, "it's just bruised. I would know if I broke it. I'll get you some ice."  
-"You don't have some magic un-bruising pill?"  
+"You don't have some magic un\-bruising pill?"  
 "I do, but it makes your balls fall off."  
 "Oh god, how did they find..."  
 "I was joking. I'll get you some ibuprofen."  
@@ -268,7 +268,4 @@ I let a crooked smile spread across my face as I lean my head against the wall. 
 "So if I have to let people choose, what's next then?"  
 "I don't know, but I'd like to talk about it."
 
-I realize that this might be the first time I've ever felt excited by the uncertain blank slate provided by the future.
-
-Why I wrote this story:
-It asks a lot of questions I've been thinking about. I don't really have any answers, but I thought a story would be a cool way to start a conversation and I'd like to hear what other people think about this.
+This might be the first time I've ever felt excited by the uncertain blank slate provided by the future.
