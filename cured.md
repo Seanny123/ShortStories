@@ -201,7 +201,7 @@ By the time I'm finished, she looks like she's trying to decide between punching
 "Have you thought of starting to care for the people around you before you try to care for the world?"  
 My muscles tighten up again, but I know how to push through them this time.  
 "Right," I say, "I've gotta go talk to Jad."  
-Abby calls out after me, as I get up to leave, "Are you sure you're not gay for him? I mean, you share more with him than you ever did with me."  
+Abby calls out after me, as I get up to leave, "Are you using Jad as your 'rebound'? I mean, you share more with him than you ever did with me."  
 I flip her off over my shoulder and her laughter follows me down the hall.  
 
 \-
