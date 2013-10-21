@@ -267,5 +267,3 @@ I let a crooked smile spread across my face as I lean my head against the wall. 
 
 "So if I have to let people choose, what's next then?"  
 "I don't know, but I'd like to talk about it."
-
-This might be the first time I've ever felt excited by the uncertain blank slate provided by the future.
