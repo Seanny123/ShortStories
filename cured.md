@@ -1,9 +1,7 @@
 Cured
 ===
 
-Abby's hair blows in the wind as we walk in the park beside her apartment. It will be someone else running their fingers through her hair now, I guess.  
- 
-“It’s like you’re only half\-there when we're together,” Abby says. "Honestly, what do you want Tony? What do you care about?" This hurts more than it should given how many times this has happened before.  
+“It’s like you’re only half\-there when we're together,” Abby says. Her hair blows in the wind as we walk in the park beside her apartment. It will be someone else running their fingers through her hair now, I guess. "Honestly, what do you want Tony? What do you care about?" This hurts more than it should given how many times this has happened before.  
 "Well, I was hoping to see a movie with you," I say, "but that doesn't seem to be an option anymore."  
 She sighs, so I guess that means I win. At least that's what I keep telling myself as I walk home and collapse into a puddle of self\-pity with a bag full of candy.  
 
@@ -14,7 +12,7 @@ It's one in the morning, but Jad's still in the mood to talk. He has a poly\-pha
 His foot taps out the same rhythm that I usually hear when he's in front of a whiteboard solving a problem. He reaches into his pocket and takes out a stress ball, branded with the logo of some start\-up I've never heard of. He rolls it between his hands with the same ceremony as a therapist asking you to lay down on the couch.  
 "Given the evidence presented before me," he says, "I'm going to hypothesize that Abby broke up with you." Some people use "Divide and Conquer" as a method to solving computer problems. Jad uses it as his life's motto. I've learned it's easier to just go with it.  
 "She said we drifted apart over the summer," I say, "because we were so far away. Now, she says it wasn't just the distance and the problem is I'm not 'emotionally responsive' enough. What does that even mean?"  
-"Why didn't you ask her?"  
+"Why didn't you ask her?" he asks.  
 "I prefer clean and quick break\-ups. Do you think I'm emotionally unresponsive?"  
 "You want the honest answer?"  
 I grab another handful of jujubes in preparation. "Hit me."  
@@ -56,7 +54,7 @@ They seem legitimate as far as my high school knowledge of biology is concerned.
 
 It first sneaks up on me a couple of days later while I'm sitting in Ecology class. We're talking about these tropical frogs that went extinct and a ball of emotion starts to build in my chest. I feel the all\-encompassing despair that would come with being of the last of your species, unable to understand why everything you've ever known is coming to an end. To know without a doubt that there is no future left. The prof says that this tragedy is due in part to our carnivorous diet, which encourages the deforestation of the Amazon. Despite my heart swelling with righteous indignation, the best thing I can come up with is choosing a veggie burger for lunch.
 
-I notice it again when I get a coffee from Timmie's on my way home. The cashier is sluggish, but upon further examination, I can tell she's having a rough day. I decide to try to cheer her up.
+I notice it again when I get a coffee on my way home. The cashier is sluggish, but upon further examination, I can tell she's having a rough day. I decide to try to cheer her up.
 
 I blurt out once I reach the front of the line, "Your earrings are really nice... And you are doing a good job."
 "Thanks?" she says.
@@ -141,7 +139,7 @@ He's unfazed by my emotional instability. "Because you're intimidated by respons
 "Listen, I didn't mean to anger..."  
 "Sorry. I'm not angry, you just seem to have some answers I need."  
 "Okay..."  
-"As I was saying, apathy stops me from helping people, so ideally, I should fix it."  
+"Apathy stops me from helping people, so ideally, I should fix it."  
 "Sure."  
 "What if, hypothetically, you could take a pill that made you more emotionally sensitive to other people's suffering. Would you take it?"  
 He relaxes now that he's in more familiar territory. "Of course. Assuming that it has no ulterior cost."  
@@ -169,7 +167,7 @@ I'm taking a shortcut back home when I hear someone crying in one of the compute
 
 "Hey," I say, "do you need someone to talk to?"
 
-She looks up. It's my ex. She got a haircut and I didn't recognize her.
+She looks up. It's Abby. She got a haircut and I didn't recognize her.
 
 "Are you kidding me?" she says.
 
@@ -227,7 +225,7 @@ I make a grab for it, but Jad punches me in the face. I fall on the ground cring
 "What?"  
 
 "It happened back when I was in San Francisco. I'm sitting in this bar, waiting for a friend to show up. There's this girl who is giving me glances, so I walk over. We hit it off and just as I'm starting to think of asking her for her number, her boyfriend shows up. Preppy looking guy, kind of scrawny. He doesn't even tell me off right away. He joins the conversation, hinting for me to leave, but I don't because I want to show to his girlfriend how much more interesting I am than the average person. So finally, he says it out loud, 'Hey. Back off. She's taken.'  
-I leave, but not before saying one final remark, 'You know you could do better.'  
+I leave them with, 'You know you could do better.'  
 
 That pisses him off, which is what I wanted, so he shoves me from behind. It's the tiniest of physical triggers, but it ignites the powder keg that I've been building up all night.
 
@@ -261,7 +259,7 @@ I put my hand on my jaw and it explodes in pain.
 "You don't have some magic un\-bruising pill?"  
 "I do, but it makes your balls fall off."  
 "Oh god, how did they find..."  
-"I was joking. I'll get you some ibuprofen."  
+"I was joking. I'll get you some acetominophen."  
 
 I let a crooked smile spread across my face as I lean my head against the wall. The warmth of a rekindled friendship spreads throughout my chest and contrasts nicely with the ice I apply on my chin.
 
