@@ -38,7 +38,7 @@ I grab another handful of jujubes in preparation. "Hit me."
 
 I like that idea a lot better.
 
-Jad is the only owner of a bio\-printer in our city and maybe for miles around. From what I understand, there are a lot of fancy compounds in the world made out of basic materials that are easily acquirable. If you get that material, you can print it into whatever you want. The psilocybin pills he printed out for us last week is just carbon, hydrogen, nitrogen, phosphorous and oxygen. How you get from code to the pills, I'm not so clear on, but as long as the LSD keeps working, I'm not too worried.
+Jad is the only owner of a bio\-printer in our city and maybe for miles around. From what I understand, there are a lot of fancy compounds in the world made out of basic materials that are easily acquirable. If you get that material, you can print it into whatever you want. The LSD he printed out for us last week is just carbon, hydrogen, nitrogen and oxygen. How you get from code to the pills, I'm not so clear on, but as long as the LSD keeps working, I'm not too worried.
 
 Jad taps on his phone a few times and I hear the bio\-printer start in his bedroom. I smell the usual synthetic aroma coming from the printer, except this time with a unique hint of strawberry.
 
@@ -265,3 +265,5 @@ I let a crooked smile spread across my face as I lean my head against the wall. 
 
 "So if I have to let people choose, what's next then?"  
 "I don't know, but I'd like to talk about it."
+
+The uncertain blank slate provided by the future stretches out in front of me and for the first time, I'm actually excited to see it.
