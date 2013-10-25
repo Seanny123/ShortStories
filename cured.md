@@ -5,7 +5,7 @@ Cured
 "Well, I was hoping to see a movie with you," I say, "but that doesn't seem to be an option anymore."  
 She sighs, so I guess that means I win. At least that's what I keep telling myself as I walk home and collapse into a puddle of self\-pity with a bag full of candy.  
 
-"Those are those 'Comfort Candies' aren't they?" my room\-mate Jad says, throwing himself on the couch beside me. "In the year we've lived together, I've never seen you smiling while eating those jujubes."
+"Those are those 'Comfort Candies' aren't they?" my room\-mate Jad says, returning from his evening work-out. He throws himself on the couch beside me. "In the year we've lived together, I've never seen you smiling while eating those jujubes."
 
 It's one in the morning, but Jad's still in the mood to talk. He has a poly\-phasic sleep cycle which means he sleeps something like four hours a day in half hour chunks.
 
@@ -18,7 +18,7 @@ His foot taps out the same rhythm that I usually hear when he's in front of a wh
 I grab another handful of jujubes in preparation. "Hit me."  
 "You don't connect emotionally with other people and I doubt you even know how to connect with yourself."  
 "I connect with myself the same way everyone else does. One hand on the mouse, the other hand on my..."  
-"First point. What I mean is you don't seem to be able to imagine anyone complexly."  
+"First point. You don't seem to be able to imagine anyone complexly."  
 "What? I understand people."  
 "When I introduced you to my friend Dev, you said he smelled pretty good for a hippy."  
 "It was a joke. Also, I've never met a person with dreadlocks who wasn't a hippy."  
@@ -101,7 +101,7 @@ Jad is taken aback, "What? We just got started."
 "I'm sure a lower dose will fix those problems."  
 "No, fuck it Jad, I need my apathy to function. I used to be happy. Now, I'm having existential crises at night, which is something I thought only emo kids did."  
 "So your priorities are re\-aligning. Isn't this what you wanted?"  
-My voice approaches hysteria. "Maybe, but I still wanted to know who the hell I was. I DON'T EVEN LIKE THESE FUCKING JUJUBES ANYMORE!" I shake the bag in front of me accenting my confusion.  
+My voice approaches hysteria. "Maybe, but I still wanted to know who the hell I was. I DON'T EVEN LIKE THESE FUCKING JUJUBES ANYMORE!" I shake the bag in front of me accenting my frustration. 
 Jad pleads, "Come on don't give up now!"  
 
 Although Jad does give me suggestions from time to time, ultimately he has always let me choose the path of my life. He would work like crazy on his projects and I would mess around on the Internet. The only reason he would be trying to shove these pills down my throat is...
@@ -111,7 +111,7 @@ Although Jad does give me suggestions from time to time, ultimately he has alway
 Just as I thought, zero relevant results. Jad sighs behind me.
 
 "You son of a bitch!" I get up off my chair and throw the jujubes to the ground,  
-"You've been waiting all along for me to be vulnerable and now you're killing me for one of your fucking experiments!"
+"You've been waiting all along for me to be vulnerable and now you're killing me for one of your fucking experiments!"  
 "I would hardly call increased motivation and emotional awareness fatal..."  
 "You don't know what the long term effects are!"  
 "Please, you make it sound like I didn't try it on myself first."  
@@ -124,20 +124,20 @@ That stops me in my tracks.
 "Actually, I was thinking the campus coffee machine might be the more practical vector of propagation."  
 "I'm not even going to try and counter that. Jad, the pills have made you completely insane and I am moving the hell out."
 
-To his credit, Jad doesn't try to stop me as I rush through our living room and slam the door.
+To his credit, Jad doesn't try to stop me as I rush through out of our apartment and slam the door.
 
 \-
 
 Post\-empathy is a weird state of being. I used to care about all these things, but now I can close my bubble and focus on myself. I can't decide if this is an improvement.
 
-One day while taking my meandering route back to my friend's house, I notice an older, chubby priest handing out leaflets. Instead of avoiding him like the plague like I usually do, I march towards him with an angry sense of purpose.
+One day while taking my meandering route back to my friend's house, I notice an older, chubby priest handing out leaflets. Instead of avoiding him like the plague as I usually do, I march towards him with an angry sense of purpose.
 
 He extends a black and white print\-out towards me. "Hey, do you want help the homeless acquire Internet skills?"
 I snatch the print\-out from his hand and look him in the eye. "Like most people today, I'm going to lie to you and say yes, but never follow up on anything. Do you know why?"  
 He's unfazed by my emotional instability. "Because you're intimidated by responsibility?"  
 "Nope. Because I can't imagine the effort being worth the cost of leaving my cozy home."  
 "Listen, I didn't mean to anger..."  
-"Sorry. I'm not angry, you just seem to have some answers I need."  
+"Sorry. I'm not angry, you just seem to have some answers I need and I've lost the only friend that I can talk about this with."  
 "Okay..."  
 "Apathy stops me from helping people, so ideally, I should fix it."  
 "Sure."  
@@ -177,11 +177,11 @@ Since there's no dignity to salvage at this point, I might as well be honest. "W
 
 "Humour me. I'm trying to turn over a new leaf and your only other option at this point is the guy playing Starcraft behind you."
 
-She lets out a weak laugh and then lets her shoulders slump, "Fuck. It's so silly now that I say it out loud, but my grandmother is in the hospital. She only has to get some surgery and there's a two percent chance that she'll die, but I keep thinking about how that's almost the same chance as picking card from a deck. I'm not ready to lose her, even though we've never been that close. Now I'm wondering maybe the fact that we aren't that close is mostly my fault. Honestly, I probably just need to get out of this lab and go for a walk." She wipes her tears with the sleeve of her sweater. "God, who cries in public when they're this old?"
+She lets out a weak laugh and then lets her shoulders slump, "Dammit. It's so silly now that I say it out loud, but my grandmother is in the hospital. She only has to get some surgery and there's a two percent chance that she'll die, but I keep thinking about how that's almost the same chance as picking card from a deck. I'm not ready to lose her, even though we've never been that close. Now I'm wondering maybe the fact that we aren't that close is mostly my fault. Honestly, I probably just need to get out of this lab and go for a walk." She wipes her tears with the sleeve of her sweater. "God, who cries in public when they're this old?"
 
 "Well, recently me..."  
 "Seriously?" She's smiling now. Would pre\-drug me miss a smile?  
-"What the fuck happened?" she says.  
+"What the hell happened?" she says.  
 My muscles tighten in my chest initially, but this is what empathetic people do, they share.  
 "After you broke up with me, I wondered if what you said had some truth in it, so Jad proposed a little experiment..."  
 By the time I'm finished, she looks like she's trying to decide between punching me and hugging me. She wisely opts for neither.  
@@ -254,7 +254,7 @@ I start to laugh.
 
 I put my hand on my jaw and it explodes in pain.
 
-"Speaking of turning empathy into action," I say, "can you drive me to the walk\-in clinic? I think you broke my jaw."
+"Speaking of turning empathy into action," I say, "can you drive me to the walk\-in clinic? I think you broke my jaw."  
 "No," Jad says, "it's just bruised. I would know if I broke it. I'll get you some ice."  
 "You don't have some magic un\-bruising pill?"  
 "I do, but it makes your balls fall off."  
