@@ -4,9 +4,8 @@ This is where I keep all my writing. It's not very good yet, but I hope it will 
 
 Progress
 =========
-"Tempo" is almost finished and is definitely my best work so far (which isn't saying much).
-"Cured" needs work, but is at the point where I'm showing it to other people again.
-"Revelation Blues" is basically unreadable at this point.
+"Tempo" is almost finished and is definitely my best work so far (which isn't saying much).  
+"Revelation Blues" is basically unreadable at this point and will probably be thrown into the recycle bin.  
 
 
 
